@@ -32,7 +32,7 @@
 
 ### 📫 How to Reach Me
 - 📧 [Email](mailto:okungusefa@gmail.com)  
-- 🔗 [LinkedIn](www.linkedin.com/in/cephas-okuku-3b97271ba)  
+- 🔗 [LinkedIn](https://www.linkedin.com/in/cephas-okuku-3b97271ba/)  
 
 ---
 
